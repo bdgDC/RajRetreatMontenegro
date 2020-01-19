@@ -1,6 +1,16 @@
 # RajRetreatMontenegro
 Raj's 40th Birthday. PA and Raj have rented a house in Kotor, Montenegro, in Augus 2020t: Tuesday the 11th to Sunday 16th.
 
+# Raj's Notes
+We would love for you and the family to come.  The invite has gone to several families and depending on the yeses, we will get another house next door if need be or if everyone says yes, we will rethink the lodging.
+
+My family will be flying into Venice and then working our way down and flying out of Dubrovnik, Croatia on the 17th back to DC.
+
+So, please let me know if you can come by Jan. 15th, with a hard commitment.  If I don't hear from you, I will just assume you can't go but will join us for a local DC BBQ party.
+
+[Airbnb](https://www.airbnb.com/rooms/24751331?adults=12&children=2&source_impression_id=p3_1575842732_AFZBOvYiOPoWHXND)
+
+# Brandon's Notes
 Kotor is on a bay.
 
 Accession of Montenegro to the European Union (EU) is on the current agenda for future enlargement of the EU. [LINK](https://www.gov.uk/foreign-travel-advice/montenegro/money)
